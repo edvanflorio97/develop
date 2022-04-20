@@ -7,3 +7,9 @@
     eu tinha esquecido de falar o que eu queria falar.
 
     existe um arquivo com os nomes das linguagens que uso.
+
+    as minhas experimentações
+
+
+
+    asdadadasdasdasdasdadasdasdadsdsa
