@@ -10,4 +10,4 @@
 
     as minhas experimentações
 
-
+resolvi um bug que tinha nessa linha 
