@@ -11,5 +11,3 @@
     as minhas experimentações
 
 
-
-    asdadadasdasdasdasdadasdasdadsdsa
